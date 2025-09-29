@@ -196,6 +196,7 @@
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/GhRcJW4XgAATjSd.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/Gjl4z8RXIAACP36.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Illustrations/GoquLu-WAAA-aze.jpg)
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Illustrations/wallhaven-jexerw.png)
 
 
 
