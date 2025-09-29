@@ -131,6 +131,8 @@
 ![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Games/GrgBq7QXgAAxahF.jpg)
 ![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Games/GsZPVT3XUAAzzxC.jpg)
 ![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Games/wallhaven-xe8wgd.png)
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Games/output%203.png)
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Games/output.png)
 
 
 ## 🦹‍♀️HERO'S & VILLAIN'S🦹‍♂️
