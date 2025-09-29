@@ -67,7 +67,10 @@
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Abstract/wallhaven-jx2rxw.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Abstract/wallhaven-kw318d.jpg)
 ![screenshot](https://github.com/polluxau/linuxnext-wallpapers/blob/main/Abstract/wallhaven-6dv99x.png)
-
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Abstract/bars.jpg)
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Abstract/minimalist-black-hole.png)
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Abstract/wallhaven-w5o9o7.png)
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Abstract/wallpaper.png)
 
 ## 🎮GAMES🎮
 
