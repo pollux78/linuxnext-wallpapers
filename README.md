@@ -40,6 +40,8 @@
 
 [Icemarv14](https://x.com/icemarv14)
 
+[Kirill Parshin](https://vk.com/k.parshin97)
+
 -------
 ## I also use upscaler to upscale the images 🐧
 
