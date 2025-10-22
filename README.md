@@ -42,6 +42,10 @@
 
 [Kirill Parshin](https://vk.com/k.parshin97)
 
+[Arc Raiders](https://arcraiders.com/en/)
+
+[Tahir Tanis Arc Raiders Art Director](https://x.com/tahirtaniss)
+
 -------
 ## I also use upscaler to upscale the images 🐧
 
