@@ -11,6 +11,12 @@
 
 [Wallhaven](https://wallhaven.cc/)
 
+## If you want live wallpapers on kde plasma you can use smart video wallpaper reborn and i get live wallpapers from moewalls
+
+[Smart video wallpaper reborn](https://store.kde.org/p/2139746)
+
+[Moewalls](https://moewalls.com/)
+
 ------
 
 ## Some of these wallpapers are from artists i follow personally 
