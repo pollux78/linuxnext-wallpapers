@@ -52,6 +52,8 @@
 
 [Tahir Tanis Arc Raiders Art Director](https://x.com/tahirtaniss)
 
+[aoranPB](https://x.com/aoranPB)
+
 -------
 ## I also use upscaler to upscale the images 🐧
 
@@ -153,6 +155,7 @@
 ![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Games/ArcRaiders_ConceptArt_05_250902.png)
 ![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Games/ArcRaiders_ConceptArt_03_250829.png)
 ![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Games/ArcRaiders_ConceptArt_01_250829.png)
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Games/20260220_002323.jpg)
 
 
 ## 🦹‍♀️HERO'S & VILLAIN'S🦹‍♂️
