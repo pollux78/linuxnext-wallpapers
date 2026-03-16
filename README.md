@@ -199,6 +199,7 @@
 ![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Hero%20%26%20Villains/wallhaven-jex3qy.jpg)
 ![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Hero%20%26%20Villains/wallhaven-yq8d5g.jpg)
 ![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Hero%20%26%20Villains/wallhaven-5yz968.jpg)
+![screenshot](https://github.com/pollux78/linuxnext-wallpapers/blob/main/Hero%20%26%20Villains/distro%20army%20wallpaper.png)
 
 ## 🖌️ILLUSTRATIONS🖌️
 
