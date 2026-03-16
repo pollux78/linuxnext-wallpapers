@@ -54,6 +54,8 @@
 
 [aoranPB](https://x.com/aoranPB)
 
+[fredram baudart](https://fredrambaudart.com/work)
+
 -------
 ## I also use upscaler to upscale the images 🐧
 
