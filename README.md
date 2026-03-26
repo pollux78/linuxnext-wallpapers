@@ -1,3 +1,5 @@
+# THIS HAS BEEN MOVED TO GITLAB, HAD ENOUGH OF MICROSOFT.
+
 # These are some of my wallpapers that i have, so here they are 🎨🖌️
 
 
